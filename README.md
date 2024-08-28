@@ -6,8 +6,8 @@
 - 📫 How to reach me ,..i dont think its a good idea 
 - 😄 Pronouns: ... noob
 - ⚡ Fun fact: ...about me.. you really wanna listen ??
-- ok then im not a normal kid sometimes i really wanna develop a good sense in every single language ever made on earth
-- but also sometimes when i try to start one then suddenly i go on drugs ( its not good i guess )
+- ok then im not a normal kid sometimes i really wanna develop a good sense in eprogramming.
+-  but also sometimes whenever my brain trips i just move onto my machine and do so linux hacking..
 - thanksss.....
 
 <!---
